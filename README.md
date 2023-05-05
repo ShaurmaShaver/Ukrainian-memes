@@ -1,1 +1,1 @@
-# Ukrainian-memes
+# Ukrainian-memes.shaurma

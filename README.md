@@ -1,2 +1,2 @@
 # 
-Ukrainianmemes.com
+Ukrainian-memes.com
